@@ -1,4 +1,4 @@
-![]()
+![](https://www.takaratomy.co.jp/products/conan-cardgame/storage/card/19e3879935c1b0.jpg)
 # 工藤新一
 #### 偵探／高中生
 ---
