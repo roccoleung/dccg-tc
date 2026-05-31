@@ -1,4 +1,4 @@
-![]()
+![](https://www.takaratomy.co.jp/products/conan-cardgame/storage/card/1779885194402942.jpg)
 # 圓谷光彥
 #### 少年偵探團
 ---
