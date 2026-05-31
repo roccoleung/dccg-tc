@@ -1,6 +1,6 @@
 ![](https://www.takaratomy.co.jp/products/conan-cardgame/storage/card/1779885194410209.jpg)
 # 沖田總司
-#### 高中生
+#### 高校生
 ---
 `自己回合中` 現場的此角色等級+1，AP+1000。\
 `拍檔綠` **突擊**\
